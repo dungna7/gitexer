@@ -8,10 +8,11 @@ mình đến cty laser lấy hàng.
  Vì nhìn quanh không có thùng rác
  nên mình gập làm 3 dắt vào đuôi xe máy.
  Tính gặp thùng rác thì vứt, 
-
+ nhưng loay hoay lại để vào mấy t
+ hùng hàng hồi nào không hay.
 aaaaaa
 aaaaaaa
 ccccccc
 bbbbbbb
 bbbbbbb
-
+bbbbbbb
