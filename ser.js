@@ -1,3 +1,4 @@
+
 09h35 sáng nay ngày 24/8/2017 
 mình đến cty laser lấy hàng.
  Lúc xuống lấy xe máy thì thấy c
@@ -9,3 +10,8 @@ mình đến cty laser lấy hàng.
  Tính gặp thùng rác thì vứt, 
  nhưng loay hoay lại để vào mấy t
  hùng hàng hồi nào không hay.
+aaaaaa
+aaaaaaa
+ccccccc
+bbbbbbb
+bbbbbbb
